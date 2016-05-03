@@ -1,4 +1,4 @@
-# Santander-Profits-Up-13-after-Mortgage-Lending-Rises-
+# Santander-Profits-Up-13-after-Mortgage-Lending-Rises
 <p>
 High street banking group Santander has posted a 13% rise in profits after it successfully managed to attract more current account customers. 
 The Spanish-owned lender said that UK pre-tax profits increased to over £500 million in the first quarter of 2016, up from £470 million from the previous year.
